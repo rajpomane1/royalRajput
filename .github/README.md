@@ -6,15 +6,15 @@
  <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"> 
 
   <h2 align="center"> 
- ──「 ✨𝗚𝗝𝟱𝟭𝟲𝗫𝗠𝗨𝗦𝗜𝗖🥀 」── 
+ ──「𝐈𝛕ᷟ͢𝚣⃪ꙴ ⋆‌⃝⁣🥵🖤Hᴀᴄᴋᴇʀ Hᴇᴀʀᴛ❤️⃟⃟⃟⃟⃟⃟⃟⃟⃟⃟⃟⃟𓆩᪵𓆪 ⏤͟͟͞➖⃟🥀 ── 
 
  </h2> <p align="center"> 
 
-   <img src="https://te.legra.ph/file/ffbb952864390e288b5ae.jpg"> 
+   <img src="https://telegra.ph/file/530db00337a6105462f7e.jpg"> 
 
  </p> 
 
-  ## ᴄᴀᴛᴄʜ ᴍᴇ ɪɴ [ᴛᴇʟᴇɢʀᴀᴍ](https://t.me/export_gabbar)  
+  ## ᴄᴀᴛᴄʜ ᴍᴇ ɪɴ [ᴛᴇʟᴇɢʀᴀᴍ](https://t.me/I_LOVE_YOU_PAGAL)  
 
   ## ⚡ (ɢɪᴠᴇ sᴛᴀʀ) 
  
